@@ -1,1 +1,1 @@
-https://agliullinadi.github.io/fifth/index
+https://agliullinadi.github.io/game/index
